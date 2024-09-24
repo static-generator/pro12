@@ -1,3 +1,3 @@
 # Pro12
-## Angelo Tan Catacutan
+## Angelo T. Catacutan
 
